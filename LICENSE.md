@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot rare Script offers the most advanced steal a brainrot Script, with fly and unlimited stamina. Perfect for dominating any match.
 
 
 
